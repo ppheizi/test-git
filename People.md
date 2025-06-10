@@ -1,1 +1,0 @@
-Artemy Voskoboynik
